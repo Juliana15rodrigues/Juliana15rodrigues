@@ -10,5 +10,5 @@ Meu nome é Juliana Rodrigues
 
 juliana.rodrigues15@escola.pr.gov.br
 
-![](https://tenor.com/pt-BR/view/qoobee-agapi-dancing-happy-dance-gif-11624520)
+![](https://media.tenor.com/DxMIq9-tS5YAAAAC/milk-and-mocha-bear-couple.gif)
 
